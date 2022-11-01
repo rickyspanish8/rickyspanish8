@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @rickyspanish8
+- 🌱 I’m currently learning the art of coding :)
